@@ -1,8 +1,12 @@
 <p align = center>
+you're so shy you can't even speak to the convenience store clerk.
+</p>
+
+<p align = center>
 <img width="536" height="391" alt="5HY2G0s" src="https://github.com/user-attachments/assets/07b3eec2-8b19-46cb-ba94-9dc49ea577bd" />
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://hiopes.atabook.org)⠀⠀⠀[rentry]()⠀⠀⠀[main](https://github.com/hiopes)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[atabook](https://hiopes.atabook.org)⠀⠀⠀[rentry](https://rentry.co/kkymoto)⠀⠀⠀[main](https://github.com/hiopes)
 
 <!--
 **kkyomoto/kkyomoto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
