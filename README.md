@@ -8,7 +8,7 @@ im not very social
 c*h always and encㅤ,ㅤw2i pref
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ[atabook](https://fraction.atabook.org)ㅤ[rentry](https://rentry.org/kkymoto)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ[atabook](https://fraction.atabook.org)ㅤ[rentry](https://rentry.org/loafbread)
 ㅤ
 
 
