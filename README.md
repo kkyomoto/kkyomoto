@@ -8,7 +8,7 @@ im not very social
 c*h encouragedㅤ𓏺ㅤmainly offtabㅤw2i pref
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ[atabook](https://fraction.atabook.org)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ[atabook](https://fraction.atabook.org)
 ㅤ
 
 
