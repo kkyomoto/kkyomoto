@@ -10,7 +10,7 @@
 𝖼*𝗁 𝖾𝗇𝖼𝗈𝗎𝗋𝖺𝗀𝖾𝖽⠀,ㅤ𝗆𝖺𝗂𝗇𝗅𝗒 𝗈𝖿𝖿𝗍𝖺𝖻ㅤ𝗐2𝗂 𝗉𝗋𝖾𝖿
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://fraction.atabook.org)ㅤ[𝗋𝖾𝗇𝗍𝗋𝗒](https://rentry.org/loafbread)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ [𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://fraction.atabook.org)ㅤㅤ[𝗋𝖾𝗇𝗍𝗋𝗒](https://rentry.org/loafbread)
 ㅤ
 
 
